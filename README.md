@@ -51,3 +51,7 @@ Isolation, uncertainty, and the stress of the pandemic had significant implicati
 ## Conclusion
 
 This comprehensive study aims to provide a deeper understanding of the far-reaching impacts of COVID-19 on food production and human life worldwide. By examining these dimensions, we hope to contribute valuable insights to inform future policies, interventions, and strategies aimed at building resilience in the face of global crises.
+
+## Link
+
+For better understanding of impact of covid19 on food production, please check the youtube link https://youtu.be/5Sny9dD2E3k?si=0mT7qhlelWNBJuPl
